@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my page - Create ClassRoom GitHub
 
-I'm glad you are here. I plan to talk about ...
+Certo pessoal vamos trabalhar com algo totalmente novo para alguns.
